@@ -1,1 +1,1 @@
-# praticaltest
+# 1D E.Otgonchimeg
